@@ -1,6 +1,6 @@
-# Voices of the Void Unused Content Wiki
+# Voices of the Void Unused Content Wiki 🌺📡
 > [!WARNING]
-> This wiki will **ruin your first playthrough** and **taint all subsequent ones**. Be warned.
+> This wiki can **ruin your first playthrough** and **taint all subsequent ones**. Be warned.
 
 > [!NOTE]
 > Datamined information is frequent here! Please be mindful of others when citing this wiki.
